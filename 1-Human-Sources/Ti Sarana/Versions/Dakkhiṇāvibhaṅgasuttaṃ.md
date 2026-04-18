@@ -1,0 +1,1 @@
+Yaṃ hānanda, puggalo puggalaṃ āgamma buddhaṃ saraṇaṃ gato hoti, dhammaṃ saraṇaṃ gato hoti, saṅghaṃ saraṇaṃ gato hoti, imassānanda, puggalassa iminā puggalena na suppatikāraṃ vadāmi, yadidaṃ – abhivādana-paccuṭṭhāna-añjalikamma sāmīcikammacīvarapiṇḍapātasenāsanagilā- nappaccayabhesajjaparikkhārānuppadānena. 

@@ -1,0 +1,1 @@
+Homage to Him, the Blessed One, the Exalted One, the Fully Enlightened One.

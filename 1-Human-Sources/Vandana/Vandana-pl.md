@@ -1,0 +1,1 @@
+Namô Tassa Bhagavatô Arahatô Sammâ-Sambuddhassa
